@@ -4,8 +4,10 @@
 <div align="center">
 <img src="https://raw.githubusercontent.com/rekvichen/rekvichen/refs/heads/main/%E0%B9%84%E0%B8%A1%E0%B9%88%E0%B8%A1%E0%B8%B5%E0%B8%8A%E0%B8%B7%E0%B9%88%E0%B8%AD%202802_20260517125909.png" width=400>
 
+  .
 
-  [✦ atabook](https://rekvichen.atabook.org/)
+
+  [✦ atabook](https://rekvichen.atabook.org/).  |    [✦rentry info](https://rentry.co/zikuvweb)
 
 .
   
