@@ -8,3 +8,5 @@
   [✦ atabook](https://rekvichen.atabook.org/)
 
   wip ok.
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lgojzpcp67ypj2ol6skzjcwzpa&cover_image=true&theme=default&show_offline=true&background_color=3c5fab&interchange=false&profanity=false&hide_remaster=false&bar_color=adb2e0)](https://spotify-github-profile.kittinanx.com/api/view?uid=31lgojzpcp67ypj2ol6skzjcwzpa&redirect=true)
