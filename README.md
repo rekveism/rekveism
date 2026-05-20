@@ -7,7 +7,7 @@
   .
 
 
-  [✦ atabook](https://rekvichen.atabook.org/).  |    [✦rentry info](https://rentry.co/zikuvweb)
+  [✦ atabook](https://rekvichen.atabook.org/).  |    [✦rentry info](https://rentry.co/zikuvweb) [✦shared rentry](https://rentry.co/our-stage)
 
 .
   
