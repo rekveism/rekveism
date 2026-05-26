@@ -4,8 +4,9 @@
 <br>
 <br>  ✦ ren  or any name! ⋆˚꩜｡ 
 <br> c+h are always allow!!(i/wdm)
+<br> we might being dry sometimes or first talk
 <br>
- 
+<br>  . [ata](https://rekveismm.atabook.org/)
  
   .<table>
 <br>
