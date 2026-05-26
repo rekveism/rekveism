@@ -1,6 +1,11 @@
-<img src="https://files.catbox.moe/fgv63k.png#left" width="300" align="left">
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=rekveism&label=⋆˚꩜｡&color=cf92d6&style=flat-square" alt="rekveism" /> </p>
 
-##### <p align="center"> <img src="https://komarev.com/ghpvc/?username=rekveism&label=⋆˚꩜｡&color=cf92d6&style=flat-square" alt="rekveism" /> </p>
+<img src="https://files.catbox.moe/fgv63k.png#left" width="300" align="left">
+<br>
+<br>  ✦ ren  or any name! ⋆˚꩜｡ 
+<br> c+h are always allow!!(i/wdm)
+<br>
+ 
  
   .<table>
 <br>
