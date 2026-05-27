@@ -28,3 +28,11 @@
   </p>
 
 <img src="https://files.catbox.moe/cmhqvt.jpg">
+
+ <details>
+<summary> about me shortly :</summary> 
+ hi we are ren or rekve (re-kve) random name (?)
+   <br> we go by any name and our prns r he/they
+   <br>  transmasc . isfj . thai
+   <br> read our straw or rentry b4 u interact and we might have dry text!!
+</details>
