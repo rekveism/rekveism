@@ -26,3 +26,5 @@
   [shared rentry](https://rentry.co/ou-stage) [straw](https://yarachin4i.straw.page/)
   
   </p>
+
+<img src="https://files.catbox.moe/cmhqvt.jpg">
