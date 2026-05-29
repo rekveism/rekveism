@@ -22,7 +22,7 @@
 <br>
 <p align="center">
  
- [ata](https://rekveismm.atabook.org/) [rentry](https://rentry.co/zikuvweb)
+ [ata](https://rekveismm.atabook.org/) [rentry](https://rentry.co/cheesecakedotcakey)
   [shared rentry](https://rentry.co/our-stage) [straw](https://yarachin4i.straw.page/)
   
   </p>
